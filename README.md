@@ -2,9 +2,9 @@
 Nama: Dendy Insan Nugraha
 
 
-![Personal Notes](https://akcdn.detik.net.id/visual/2017/01/16/32a44a97-b867-45f7-a7da-b3158014169a_169.jpg?w=650&q=90)
+![Personal Notes](https://asset-a.grid.id/crop/0x0:0x0/700x465/photo/grid/original/96078_sticky-note.JPG)
 
-[Sumber Gambar](https://www.cnnindonesia.com/edukasi/20170116150005-445-186649/asal-mula-sticky-notes)
+[Sumber Gambar](https://www.grid.id/read/04166365/tak-disangka-sticky-note-ternyata-dulunya-dibuat-untuk-ini-lihat-deh-fakta-lainnya-?page=all)
 
 | | Deskripsi |
 | ----------- | ----------- |
